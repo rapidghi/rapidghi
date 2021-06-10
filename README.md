@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rapidghi
-- 👀 I’m interested in fum&interesting things
+- 👀 I’m interested in fun&interesting things
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate with all)
 - 📫 How to reach me:cebanualexei05@gmail.com
